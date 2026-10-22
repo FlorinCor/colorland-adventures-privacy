@@ -1,4 +1,4 @@
-Colorland Adventures — Notă de confidențialitate
+Colorland Adventures — Politica de confidențialitate
 În vigoare din 22 octombrie 2026
 Editor: Bondor Ramona Anisoara
 Contact pentru confidențialitate și asistență: bondorramona17@gmail.com

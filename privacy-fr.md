@@ -1,4 +1,4 @@
-Colorland Adventures — Avis de confidentialité
+Colorland Adventures — Politique de confidentialité
 En vigueur le 22 octobre 2026
 Éditrice : Bondor Ramona Anisoara
 Contact confidentialité et assistance : bondorramona17@gmail.com

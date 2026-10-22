@@ -1,4 +1,4 @@
-Colorland Adventures — Privacy Notice
+Colorland Adventures — Privacy Policy
 Effective: 22 October 2026
 Publisher: Bondor Ramona Anisoara
 Privacy and support contact: bondorramona17@gmail.com
